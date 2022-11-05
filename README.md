@@ -1,1 +1,1 @@
-# Adobe-animate-project--high-school-
+# Adobe-animate-project-high-school-
